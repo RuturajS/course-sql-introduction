@@ -6,3 +6,4 @@ Open your web browser. I'll be using chrome, but you can use Safari, Brave, Fire
 To try running your own queries while following along you can use W3Schools web SQL found at this link: https://www.w3schools.com/sql/trysql.asp?filename=trysql_select_all
 
 Here we go!
+Ghgvhhhhhhh tight Gghhhjjktuy get 5555t 6677iio0 099908 1e 3344 556 
